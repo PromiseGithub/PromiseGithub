@@ -33,6 +33,7 @@ I'm Promise Okoroji, a Software Engineering graduate of Brigham Young University
 
 ## Let's Connect!
 
+- [YouTube](https://www.youtube.com/@promiseebereokoroji4481) Link for some of my personal and class projects
 - Here is my [LinkedIn](https://www.linkedin.com/in/jessepromise/) profile
 - Reach me via email at [jessepromise@yahoo.com](mailto:jessepromise@yahoo.com)
 
